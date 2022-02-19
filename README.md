@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there! Details coming soon.... meet me at [LinkedIn](www.linkedin.com/in/olaf-jantz)
 
 <!--
 **olafj/olafj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
